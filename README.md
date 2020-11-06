@@ -1,0 +1,2 @@
+# osz
+szeretem az oszt
